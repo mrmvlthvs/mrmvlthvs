@@ -1,4 +1,4 @@
-# ¡Hola! Soy Marlene I.M. Velázquez ^^
+# ¡Hola! Soy Marlene I.M. Velázquez ^-^
 
 ### Desarrolladora de Software | Estudiante de Ingeniería en Sistemas Computacionales
 
